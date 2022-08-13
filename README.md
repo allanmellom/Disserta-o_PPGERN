@@ -1,1 +1,1 @@
-# Disserta-o_PPGERN
+# Dissertacao_PPGERN
